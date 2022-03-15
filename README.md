@@ -1,2 +1,2 @@
 # Jando-G
-Hewwo everyone ^_^. I am Alex. I'm useless.
+Hello. My name is Alex. I am not very good at the coding.
